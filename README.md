@@ -1,0 +1,1 @@
+This recipe for red velvet cake is moist, the icing is to die-for and the dark red hue is fun and festive. Give this southern treat a try and share the love in the comment section below to let us know how your red velvet cake turned out!
